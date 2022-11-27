@@ -1,5 +1,5 @@
-## Projeto Final Grupo Condomínio
+## Projeto Final APS 211
 
-### A3 Initiative 
+### Grupo Condomínio
 
 #### Ana Silva, André Sholl e Mauro Robson
