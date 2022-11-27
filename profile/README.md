@@ -2,4 +2,4 @@
 
 ### A3 Initiative 
 
-#### Ana Maria Araujo da Silva, André de Araujo Sholl e Mauro Robson de Araujo
+#### Ana Silva, André Sholl e Mauro Robson
